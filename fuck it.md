@@ -7,3 +7,7 @@ idk and idc imma work hard. I have no clear idea how I want my life to look like
 I came from college, drank energy drink and started studying. I don't give a fuck about anything or anyone. 
 
 ---
+
+I want to create something that is helpful for girls in tech or girls in general.
+
+---
