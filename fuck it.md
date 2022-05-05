@@ -13,3 +13,9 @@ I came from college, drank energy drink and started studying. I don't give a fuc
 I want to create something that is helpful for girls in tech or girls in general.
 
 ---
+
+Why someone would like to pay me atleast 1 lakh a month?
+
+---
+
+I don't wanna interview others. I wanna get interviewed by others.
