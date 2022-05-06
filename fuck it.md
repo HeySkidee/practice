@@ -19,3 +19,11 @@ Why someone would like to pay me atleast 1 lakh a month?
 ---
 
 I don't wanna interview others. I wanna get interviewed by others.
+
+---
+
+I don't wanna be a broke ass mf. I wanna become strong as fuck.
+
+---
+
+It's just me and the courses for now
