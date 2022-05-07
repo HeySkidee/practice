@@ -56,3 +56,7 @@ I wanna create things my whole life
 ---
 
 I hate feeling insecure.
+
+---
+
+Code and become a billionaire and keep making music for rest of your life. like consistently
