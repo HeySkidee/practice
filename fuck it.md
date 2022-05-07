@@ -44,3 +44,9 @@ I'm not gonna change myself, my behaviour just to attract people. I wanna do stu
 I'm working coz I wanna live a good life. creating good things is my goal. fame is a by product
 
 https://youtu.be/HnFKz40rYDs
+
+---
+
+I wanna create things my whole life
+
+<img src = "https://user-images.githubusercontent.com/59761032/167255474-46abe652-87e9-44a6-b91e-9d0841266a10.png" width="50%">
