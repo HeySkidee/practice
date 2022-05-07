@@ -2,7 +2,9 @@
 
 ## 2022: Get a job and shift to bangalore
 
-idk and idc imma work hard. I have no clear idea how I want my life to look like in future but I know one thing that If I'll keep working hard on myself and give 100% in early age. I'll definitely live rest of my life peacefully. no bs situations, no shitty people, no sacrifices.
+I won't missout much if I stay focused for atleast 2 or 6 months
+
+idk and idc imma work hard. I have no clear idea how I want my life to look like in future but I know one thing that If I'll keep working hard on myself and give 100% in early age. I'll definitely live rest of my life peacefully. no regrets, no bs situations, no shitty people, no sacrifices.
 
 ---
 
