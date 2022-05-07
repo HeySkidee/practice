@@ -27,3 +27,7 @@ I don't wanna be a broke ass mf. I wanna become strong as fuck.
 ---
 
 It's just me and the courses for now
+
+---
+
+bro I gotta learn so much shit I can't afford to waste my time on any other thing. no entertainment, no flexing, no hoes this year
