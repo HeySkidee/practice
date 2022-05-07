@@ -52,3 +52,7 @@ https://youtu.be/HnFKz40rYDs
 I wanna create things my whole life
 
 <img src = "https://user-images.githubusercontent.com/59761032/167255474-46abe652-87e9-44a6-b91e-9d0841266a10.png" width="50%">
+
+---
+
+I hate feeling insecure.
