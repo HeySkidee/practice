@@ -35,4 +35,10 @@ idc I wanna be a millionaire
 
 ---
 
+I want to do a lot of stuff. having dreadlocks, driving in a lamb truck, buying my friends, family, relatives good things man.
+
+I'm not gonna change myself, my behaviour just to attract people. I wanna do stuff coz I like to do it or have it.
+
+---
+
 I'm working coz I wanna live a good life. creating good things is my goal. fame is a by product
