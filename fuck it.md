@@ -69,3 +69,9 @@ My father died when I was in 6th standard, I cried but I got up and started agai
 I was suffering from depression in 9th standard, but I got up and started again. 
 
 My bitch left me but Imma get up and start again.
+
+---
+
+I should value and cherish people around me who love me and think about me instead of crying for a person i don't have in my life. The people who will keep adding in my life I'll keep taking care of em. and when the special person will enter my life, I'll take care of them as well :)
+
+---
