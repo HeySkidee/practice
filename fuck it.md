@@ -65,5 +65,7 @@ Code and become a billionaire and keep making music for rest of your life. like 
 
 
 My father died when I was in 6th standard, I cried but I got up and started again. 
+
 I was suffering from depression in 9th standard, but I got up and started again. 
+
 My bitch left me but Imma get up and start again.
