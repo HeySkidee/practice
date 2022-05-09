@@ -72,6 +72,10 @@ My bitch left me but Imma get up and start again.
 
 ---
 
+I knew it will happen so it's fine. It happened early in my life I'm happy now.
+
+---
+
 I should value and cherish people around me who love me and think about me instead of crying for a person i don't have in my life. The people who will keep adding in my life I'll keep taking care of em. and when the special person will enter my life, I'll take care of them as well :)
 
 ---
