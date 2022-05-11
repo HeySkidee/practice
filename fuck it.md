@@ -2,7 +2,7 @@
 
 ## 2022: Get a job and shift to bangalore
 
-Ik I'll be successful, rich af and will have a great wife. just look at the next step in the dark and take that.
+Ik I'll be successful, rich af and will have a great wife. just look at the next step and take that. 
 
 I won't missout much if I stay focused for atleast 2 or 6 months
 
@@ -86,4 +86,10 @@ When i'll be 24 i just wanna be able look back and proudly say that I WORKED HAR
 
 ---
 
+[Don't settle for normal. do crazy shit.](https://www.youtube.com/watch?v=C1gJlivicnI)
+
 My mind thinks that life is boring after marrige. But i'll create the best married life possible. I'll work with my wife, I'll teach her new things, we'll make music together, big ass projects together. we'll keep doin crazy shit one after another.
+
+---
+
+Be a finisher.
