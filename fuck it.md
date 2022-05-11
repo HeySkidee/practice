@@ -2,6 +2,8 @@
 
 ## 2022: Get a job and shift to bangalore
 
+Ik I'll be successful, rich af and will have a great wife. just look at the next step in the dark and take that.
+
 I won't missout much if I stay focused for atleast 2 or 6 months
 
 idk and idc imma work hard. I have no clear idea how I want my life to look like in future but I know one thing that If I'll keep working hard on myself and give 100% in early age. I'll definitely live rest of my life peacefully. no regrets, no bs situations, no shitty people, no sacrifices.
@@ -81,3 +83,7 @@ I should value and cherish people around me who love me and think about me inste
 ---
 
 When i'll be 24 i just wanna be able look back and proudly say that I WORKED HARD AS SHIT.
+
+---
+
+My mind thinks that life is boring after marrige. But i'll create the best married life possible. I'll work with my wife, I'll teach her new things, we'll make music together, big ass projects together. we'll keep doin crazy shit one after another.
