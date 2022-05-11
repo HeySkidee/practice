@@ -2,6 +2,8 @@
 
 ## 2022: Get a job and shift to bangalore
 
+Give me some time to develop my skills. I won't waste my doing or thinking about anything else. Honest hard work.
+
 Ik I'll be successful, rich af and will have a great wife. just look at the next step and take that. 
 
 I won't missout much if I stay focused for atleast 2 or 6 months
