@@ -111,3 +111,7 @@ growth + impact = happiness
 ---
 
 I wanna be bored doin all the top level lifestyle shit.
+
+---
+
+https://www.youtube.com/watch?v=tJniy4aGVOs
