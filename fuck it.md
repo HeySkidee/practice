@@ -99,3 +99,7 @@ Be a finisher.
 ---
 
 We can make jabalpur a great place.
+
+---
+
+I think I can do anything in any amount no matter it's interesting or not. I don't need anything. not even food.
