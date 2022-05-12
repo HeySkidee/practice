@@ -2,7 +2,7 @@
 
 ## 2022: Get a job and shift to bangalore
 
-Give me some time to solely work on my skills. not worrying about anything else. I'll get back to everything later.
+Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 
 Ik I'll be successful, rich af and will have a great wife. just look at the next step and take that. 
 
@@ -95,3 +95,7 @@ My mind thinks that life is boring after marrige. But i'll create the best marri
 ---
 
 Be a finisher.
+
+---
+
+We can make jabalpur a great place.
