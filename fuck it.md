@@ -107,3 +107,7 @@ I think I can do anything in any amount no matter it's interesting or not. I don
 ---
 
 growth + impact = happiness
+
+---
+
+I wanna be bored doin all the top level lifestyle shit.
