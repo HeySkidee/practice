@@ -121,3 +121,7 @@ https://www.youtube.com/watch?v=tJniy4aGVOs
 ---
 
 It's better to be rich and bored rather than being average weak and bored
+
+---
+
+Things take time but keep doing your thing, it will combine and show big results in future.
