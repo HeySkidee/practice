@@ -43,7 +43,7 @@ idc I wanna be a millionaire
 
 ---
 
-I want to do a lot of stuff. having dreadlocks, driving in a lamb truck, buying my friends, family, relatives good things man.
+I want to do a lot of stuff. having dreadlocks, driving in a lamb truck, buying some good stuff for my friends, family and relatives.
 
 I'm not gonna change myself, my behaviour just to attract people. I wanna do stuff coz I like to do it or have it.
 
@@ -104,7 +104,7 @@ We can make jabalpur a great place.
 
 ---
 
-I think I can do anything in any amount no matter it's interesting or not. I don't need anything. not even food.
+I think I can do anything in any amount no matter it's interesting or not. I don't need anything. not even food or coffee.
 
 ---
 
@@ -117,3 +117,7 @@ I wanna be bored doin all the top level lifestyle shit.
 ---
 
 https://www.youtube.com/watch?v=tJniy4aGVOs
+
+---
+
+It's better to be rich and bored rather than being average weak and bored
