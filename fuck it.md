@@ -133,3 +133,7 @@ Catch any one rabbit first. then catch the other one.
 ---
 
 My relationship got ruined. I have no control over it. I can change my physical, mental, financial state I should focus on it coz relationship thing is not something in my control.
+
+---
+
+I was never good at academics in school or college. my performance in school was getting worse. I was 19 and didn't even able to write fibonacci program or confidently talk in english to someone. but I deicded to make progress. real progress. progress in code and english.
