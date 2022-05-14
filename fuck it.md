@@ -128,4 +128,4 @@ Things take time but keep doing your thing, it will combine and show big results
 
 ---
 
-Catch any one rabbit at a time. then catch the other one.
+Catch any one rabbit first. then catch the other one.
