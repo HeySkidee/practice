@@ -129,3 +129,7 @@ Things take time but keep doing your thing, it will combine and show big results
 ---
 
 Catch any one rabbit first. then catch the other one.
+
+---
+
+My relationship got ruined. I have no control over it. I can change my physical, mental, financial state I should focus on it coz relationship thing is not something in my control.
