@@ -2,15 +2,25 @@
 
 ## 2022: Get a job and shift to bangalore
 
-fuck the mood, fuck the vibes. I have to do this no matter what. things will happen when i'll do the things
+fuck the mood, fuck the vibes. I have to do this no matter what. things will happen when i'll do the things.
+
+---
 
 <a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
 
+---
+
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
+
+---
 
 Ik I'll be successful, rich af and will have a great wife. just look at the next step and take that. 
 
+---
+
 I won't missout much if I stay focused for atleast 2 or 6 months
+
+---
 
 idk and idc imma work hard. I have no clear idea how I want my life to look like in future but I know one thing that If I'll keep working hard on myself and give 100% in early age. I'll definitely live rest of my life peacefully. no regrets, no bs situations, no shitty people, no sacrifices.
 
