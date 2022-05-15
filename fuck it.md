@@ -172,3 +172,7 @@ get a huge placement and do live session on yt like siddhant and do podcast with
 ---
 
 jabtak jis chiz ka sukh hai lelo. jab chale jaye wo sukh to samj jao naseeb me likha tha.
+
+---
+
+Did the mistake? recognise it and fix it as quickly as possible.
