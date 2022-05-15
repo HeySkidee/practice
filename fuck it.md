@@ -6,6 +6,10 @@ listen man. you can do it. just stay focused.
 
 ---
 
+This is the golden time you have. you can take risks. once you have a family, your family will face the risks as well.
+
+---
+
 fuck energy, mood, vibes. I have to do this no matter what. I have to do these things.
 
 ---
