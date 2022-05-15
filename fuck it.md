@@ -6,10 +6,13 @@ fuck energy, mood, vibes. I have to do this no matter what. I have to do these t
 
 ---
 
-<a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
+sadness, stress, anger, anxiety, worrying are useless.
 
 ---
 
+<a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
+
+---
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 
 ---
