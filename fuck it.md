@@ -2,6 +2,10 @@
 
 ## 2022: Get a job and shift to bangalore
 
+listen man. you can do it. just stay focused.
+
+---
+
 fuck energy, mood, vibes. I have to do this no matter what. I have to do these things.
 
 ---
