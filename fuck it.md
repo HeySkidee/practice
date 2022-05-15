@@ -140,4 +140,4 @@ I was never good at academics in school or college. my performance in school was
 
 ---
 
-Hard intensity work habits now will make hard stuff in future feel eazier
+Hard and intense work habits now will make hard stuff in future feel eazier
