@@ -160,3 +160,7 @@ Hard and intense work habits now will make hard stuff in future feel eazier
 ---
 
 get a huge placement and do live session on yt like siddhant and do podcast with siddhant as well.
+
+---
+
+jabtak jis chiz ka sukh hai lelo. jab chale jaye wo sukh to samj jao naseeb me likha tha.
