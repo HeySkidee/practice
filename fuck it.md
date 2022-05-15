@@ -10,6 +10,10 @@ sadness, stress, anger, anxiety, worrying are useless.
 
 ---
 
+this time to study and get a job will never come back.
+
+---
+
 <a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
 
 ---
