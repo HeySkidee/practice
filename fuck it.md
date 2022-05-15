@@ -2,6 +2,8 @@
 
 ## 2022: Get a job and shift to bangalore
 
+fuck the mood, fuck the vibes. I have to do this no matter what. things will happen when i'll do the things
+
 <a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
 
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
