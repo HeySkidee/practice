@@ -187,4 +187,6 @@ give yourself a shot till age 24. if you not achieve what you wanted. kill yours
 
 ---
 
-My 3 sturggles : Not able to work on insecurities (code, english, looks/workout), worrying about future wealth, worrying about a life partner.
+My 3 sturggles : Not able to work on insecurities (code, english, looks/workout) (sturggling to find a vibe or mindset to live with), worrying about future wealth, worrying about a life partner.
+
+Find out your 3 major problems you are facing in your life (can be financially, emotionally or etc) and write it down in a book, seek advice related to that 3 major problems and face that problem with a reality point of perspective.
