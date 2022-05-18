@@ -2,6 +2,9 @@
 
 ## 2022: Get a job and shift to bangalore
 
+---
+
+Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 listen man. you can do it. just stay focused.
 
 ---
@@ -23,9 +26,6 @@ this time to study and get a job will never come back.
 ---
 
 <a href="https://www.youtube.com/watch?v=yvtvUYXDNkQ"> Me n my Twizzy </a>
-
----
-Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 
 ---
 
