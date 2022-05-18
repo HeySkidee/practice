@@ -184,3 +184,7 @@ Did the mistake? recognise it and fix it as quickly as possible.
 ---
 
 give yourself a shot till age 24. if you not achieve what you wanted. kill yourself at 25.
+
+---
+
+My 3 sturggles : Not able to work on insecurities (code, english, looks/workout), worrying about future wealth, worrying about a life partner.
