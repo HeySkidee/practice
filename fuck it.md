@@ -180,3 +180,7 @@ jabtak jis chiz ka sukh hai lelo. jab chale jaye wo sukh to samj jao naseeb me l
 ---
 
 Did the mistake? recognise it and fix it as quickly as possible.
+
+---
+
+give yourself a shot till age 24. if you not achieve what you wanted. kill yourself at 25.
