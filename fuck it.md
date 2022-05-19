@@ -204,3 +204,7 @@ created softwares in abundance
 you | skills | money
 
 just study. as simple as that.
+
+---
+
+just do good things. that's it.
