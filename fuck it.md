@@ -7,6 +7,8 @@
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 listen man. you can do it. just stay focused.
 
+jitna dur ka sochta, utni tension hoti. so zyada socho hi ni ez.
+
 ---
 
 This is the golden time you have. you can take risks. once you have a family, your family will face the risks as well.
