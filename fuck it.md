@@ -7,7 +7,9 @@
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 listen man. you can do it. just stay focused.
 
-jitna dur ka sochta, utni tension hoti. so zyada socho hi ni ez.
+have a plan but don't overthink. <br>
+have a vision but don't overthink. <br>
+focus on now. live the future right now.
 
 ---
 
@@ -217,4 +219,7 @@ not supposed to have fun all the time. 20s is the age to test, burn, melt and de
 
 ---
 
-you'll always find me doing hard things.
+you'll always find me doing things tht other people don't find pleasure in.
+
+---
+
