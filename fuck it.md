@@ -198,3 +198,9 @@ There is a lot in this world. I want to explore this whole place.
 ---
 
 created softwares in abundance
+
+---
+
+you | skills | money
+
+just study. as simple as that.
