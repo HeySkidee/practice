@@ -208,3 +208,11 @@ just study. as simple as that.
 ---
 
 just do good things. ez
+
+---
+
+not supposed to have fun all the time. 20s is the age to test, burn, melt and develop.
+
+---
+
+you'll always find me doing hard things.
