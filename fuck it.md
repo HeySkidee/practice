@@ -194,3 +194,7 @@ Find out your 3 major problems you are facing in your life (can be financially, 
 ---
 
 There is a lot in this world. I want to explore this whole place.
+
+---
+
+created softwares in abundance
