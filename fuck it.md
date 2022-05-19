@@ -207,4 +207,4 @@ just study. as simple as that.
 
 ---
 
-just do good things. that's it.
+just do good things. ez
