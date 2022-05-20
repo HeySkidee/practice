@@ -1,9 +1,6 @@
-# [Talk is cheap](https://github.com/HeySkidee/idc/blob/main/fuck%20it.md)
+## Devil told me keep doin this shit
 
-### Code: 0hrs
-### Music: 0hrs 
-
----
+Talk is cheap
 
 Talk less, do more. There is no point of talking.
 
