@@ -1,5 +1,7 @@
 ## Devil told me keep doin this shit
 
+work on it until it makes you rich
+
 Talk is cheap
 
 Talk less, do more. There is no point of talking.
