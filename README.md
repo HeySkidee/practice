@@ -3,9 +3,12 @@
 
 staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
+give urself a chance till 24 nd do whatever the fuck it takes to become successful. if things didn't go well even after that then kill yourself.
+
 work on it until it makes you rich
 
-Talk is cheap
+<details>
+<summary>Talk is cheap</summary>
 
 Talk less, do more. There is no point of talking.
 
@@ -14,6 +17,7 @@ People are insecure. they do good posts, stories on ig to make them feel that th
 Like I was posting beats on ig, yt to make myself feel that I was doing something coz in reality I was insecure and had no solid foundation.
 
 My insecurities: Coding skills, english and looks.
+</details>
 
 ---
 
@@ -26,3 +30,4 @@ I know material shit means nothing. but i don't wanna just talk about being high
 Just tell me what to finish. I start and do that. no lame ass comfort shit.
 
 there is a way for everything. don't be lazy or play your mind to not to do it. atleast give it a try. it's better than wasting time on social media.
+
