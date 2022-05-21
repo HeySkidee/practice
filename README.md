@@ -3,7 +3,7 @@
 
 give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself.
 
-till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc.
+till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc. no lame ass social media shit.
 
 staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
