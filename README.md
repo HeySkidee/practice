@@ -1,7 +1,7 @@
 ### guy works hard af
 ### Devil told me keep doin this shit
 
-give urself a chance till 24 and do whatever the fuck it takes to become successful. if things didn't go well even after that. if u didn't reach the state u wanted then kill yourself.
+give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself.
 
 till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc.
 
@@ -32,3 +32,4 @@ Just tell me what to finish. I start and do that. no lame ass comfort shit.
 
 there is a way for everything. don't be lazy or play your mind to not to do it. atleast give it a try. it's better than wasting time on social media.
 
+![Screenshot (84)](https://user-images.githubusercontent.com/59761032/169660826-2d1584ed-61d4-4aa3-8f97-00132f3533b9.png)
