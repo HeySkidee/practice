@@ -20,3 +20,5 @@ evrything in life can be variable but my one thing will be constant.
 I don't wanna be in jabalpur. I wanna level up so hard. no shit around me. 
 
 I know material shit means nothing. but i don't wanna just talk about being highly successful. I wanna be successful. idc imma grind like a demon till 24.
+
+Just tell me what to finish. I start and do that. no lame ass comfort shit.
