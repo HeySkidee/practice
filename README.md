@@ -8,8 +8,7 @@ give urself a chance till 24 nd do whatever the fuck it takes to become successf
 work on it until it makes you rich
 
 <details>
-<summary>Talk is cheap</summary>
-
+<summary>Talk is cheap</summary><br>
 Talk less, do more. There is no point of talking.
 
 People are insecure. they do good posts, stories on ig to make them feel that they are doing something and are better.
