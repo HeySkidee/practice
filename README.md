@@ -18,3 +18,5 @@ My insecurities: Coding skills, english and looks.
 evrything in life can be variable but my one thing will be constant.
 
 I don't wanna be in jabalpur. I wanna level up so hard. no shit around me. 
+
+I know material shit means nothing. but i don't wanna just talk about being highly successful. I wanna be successful. idc imma grind like a demon till 24.
