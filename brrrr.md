@@ -229,3 +229,9 @@ you'll always find me doing things tht other people don't find pleasure in.
 <summary>Life</summary>
 Life is like a university where you learn, make friends, lose friends, have fun, do assignments, and have exams. mid sem, end sem, surprise test. everything is fine but preparing for exams from the start makes it easier at the final time. you can do everything at the end time but it'll be a hectic experience. in case you fail. you will not be kicked out but will given a chance again. basically do it now or later. you have to do it. so better do it fast and earlier. and chill later.
 </details>
+
+---
+
+make your website more like your own social media platform. only you will be able to post stuff, [pictures](https://user-images.githubusercontent.com/59761032/169665204-74cb6b02-6301-4382-b3d8-c950588063aa.png), achievements, [life](https://user-images.githubusercontent.com/59761032/169665271-e88d82c9-6848-4811-b0b7-8911928c49a7.png), whatever people flex on ig, twitter. you do it on ur website. I use social media just for marketing of my products, making connections. there is no point of me posting my pictures on ig. i'd rather post it on my personal website or twitter. that's it. elon musk don't share shit. he lives shit.
+
+
