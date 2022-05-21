@@ -1,9 +1,11 @@
 ### guy works hard af
 ### Devil told me keep doin this shit
 
-staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
+give urself a chance till 24 nd do whatever the fuck it takes to become successful. if things didn't go well even after that. if u didn't reach the state u wanted then kill yourself.
 
-give urself a chance till 24 nd do whatever the fuck it takes to become successful. if things didn't go well even after that then kill yourself.
+till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc.
+
+staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
 work on it until it makes you rich
 
