@@ -223,3 +223,7 @@ you'll always find me doing things tht other people don't find pleasure in.
 
 ---
 
+<details>
+<summary>Summary text.</summary>
+Life is like a university where you learn, make friends, lose friends, have fun, do assignments, and have exams. mid sem, end sem, surprise test. everything is fine but preparing for exams from the start makes it easier at the final time. you can do everything at the end time but it'll be a hectic experience. in case you fail. you will not be kicked out but will given a chance again. basically do it now or later. you have to do it. so better do it fast and earlier. and chill later.
+</details>
