@@ -1,3 +1,4 @@
+### This guy works hard af
 ### Devil told me keep doin this shit
 
 work on it until it makes you rich
