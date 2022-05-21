@@ -12,3 +12,6 @@ Like I was posting beats on ig, yt to make myself feel that I was doing somethin
 
 My insecurities: Coding skills, english and looks.
 
+---
+
+evrything in life can be variable but my one thing will be constant.
