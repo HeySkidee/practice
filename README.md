@@ -24,3 +24,5 @@ I don't wanna be in jabalpur. I wanna level up so hard. no shit around me.
 I know material shit means nothing. but i don't wanna just talk about being highly successful. I wanna be successful. idc imma grind like a demon till 24.
 
 Just tell me what to finish. I start and do that. no lame ass comfort shit.
+
+there is a way for everything. don't be lazy or play your mind to not to do it. atleast give it a try. it's better than wasting time on social media.
