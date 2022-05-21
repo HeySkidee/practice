@@ -1,4 +1,4 @@
-# idc
+## idc
 
 ### 2022: Get a job and shift to bangalore
 
@@ -6,6 +6,8 @@
 
 Give me some time to solely work on my skills. not worrying about anything else. I'll be back to everything later.
 listen man. you can do it. just stay focused.
+
+If you cannot conquer yourself, forget about conquering the world. 
 
 have a plan but don't overthink. <br>
 have a vision but don't overthink. <br>
