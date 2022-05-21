@@ -1,5 +1,5 @@
-### guy works hard af
-### Devil told me keep doin this shit
+### I work hard af 
+### I don't stop
 
 give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself.
 
