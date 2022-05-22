@@ -8,7 +8,22 @@ till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distr
 staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
 work on it until it makes you rich
-
+<details>
+<summary>The state</summary>
+  
+  - SRT, Lamborghini, Rolls Royce
+  
+  - Mansion in Jabalpur, bangalore, LA, Houston TX
+  
+  - Running my own software company
+  
+  - Doing good in music career. 1M+ monthly listeners
+  
+  - Doing concerts
+  
+  - travelled to japan, la, paris and more.
+</details>
+ 
 <details>
 <summary>Talk is cheap</summary><br>
 Talk less, do more. There is no point of talking.
