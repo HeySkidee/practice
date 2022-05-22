@@ -21,6 +21,8 @@ work on it until it makes you rich
   
   - Doing concerts
   
+  - Iced out chains
+  
   - travelled to japan, la, paris and more.
 </details>
  
