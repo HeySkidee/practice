@@ -52,3 +52,5 @@ there is a way for everything. don't be lazy or play your mind to not to do it. 
 ![Screenshot (84)](https://user-images.githubusercontent.com/59761032/169660826-2d1584ed-61d4-4aa3-8f97-00132f3533b9.png)
 
 kuch bhi khrab ho jaye. kuch bhi chala jaye but apni life mat khrab kr lena
+
+dusro se jitna kam expect kar sakte ho karo and zyada se zyada accept karo.
