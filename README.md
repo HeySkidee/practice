@@ -1,6 +1,8 @@
 ### I work hard af 
 ### I don't stop
 
+get a job, go to bangalore, start making music and be the first Indian programmer , english rapper with global level shit.
+
 give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself.
 
 this time won't come back. use it wisely. thinking and doing right things. average person keep swiping their phone.
