@@ -6,11 +6,11 @@ get a job, go to bangalore, start making music and be the first Indian programme
 I wanna be the best indian english rapper. touching electronic, pluggnb, mumble, supertrap.
 First rapper mastered rapping over redda type, supertrap beats.
 
-give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself.
+give urself a chance till 24 and do whatever the fuck it takes to become successful. if u didn't reach the state u wanted, if things didn't go well even after that then kill yourself. till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc. no lame ass social media shit.
 
 this time won't come back. use it wisely. thinking and doing right things. average person keep swiping their phone.
 
-till then do whatever it takes. sacrifices, habits, speed, decisions, fuck distractions etc. no lame ass social media shit.
+take care of your brain.
 
 staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
