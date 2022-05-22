@@ -13,7 +13,7 @@ work on it until it makes you rich
   
   - SRT, Lamborghini, Rolls Royce
   
-  - Mansion in Jabalpur, bangalore, LA, Houston TX
+  - Mansion in Jabalpur, bangalore, LA, Houston TX, Silicon valley
   
   - Running my own software company
   
