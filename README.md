@@ -54,3 +54,5 @@ there is a way for everything. don't be lazy or play your mind to not to do it. 
 kuch bhi khrab ho jaye. kuch bhi chala jaye but apni life mat khrab kr lena
 
 dusro se jitna kam expect kar sakte ho karo and zyada se zyada accept karo.
+
+find reasons to live. not excuses to die.
