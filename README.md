@@ -58,3 +58,5 @@ kuch bhi khrab ho jaye. kuch bhi chala jaye but apni life mat khrab kr lena
 dusro se jitna kam expect kar sakte ho karo and zyada se zyada accept karo.
 
 find reasons to live. not excuses to die.
+
+I wanna be rich so that i can take my girl to japan and travel the whole country.
