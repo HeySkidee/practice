@@ -2,6 +2,7 @@
 ### work hard af. practice ur focus whenever possible.
 idc i want it asap. speed run it then think about wanna live or die.
 ### I don't stop. work and sleep.
+Time is important fr man. use this 19th year with high intensity and efficiency. every hour counts. extract this year. don't worry about future.
 
 itna hardwork karo ki sabki phat jaye bas by knowing the hardwork you do.
 
