@@ -1,4 +1,5 @@
 ### I work hard af 
+idc i want it asap. speed run this bitch then think about something else wanna live or die.
 ### I don't stop
 
 get a job, go to bangalore, start making music and be the first Indian programmer , english rapper with global level shit.
