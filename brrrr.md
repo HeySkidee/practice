@@ -237,3 +237,7 @@ make your website more like your own social media platform. only you will be abl
 ---
 
 [I'm a interesting person myself. I do interesting stuff.](https://www.youtube.com/watch?v=b79-tZZxoiU)
+
+---
+
+My mother and brother already been through a lot. I don't wanna make them feel bad anymore in any possible way.
