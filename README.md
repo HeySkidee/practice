@@ -1,4 +1,4 @@
-### You gon see better days bro don't giveup. 
+### You gonna see better days bro don't giveup. 
 ### work hard af. practice ur focus whenever possible.
 idc i want it asap. speed run it then think about wanna live or die.
 ### I don't stop. work and sleep.
