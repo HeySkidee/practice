@@ -72,3 +72,5 @@ find reasons to live. not excuses to die.
 I wanna be rich so that i can take my girl to japan and travel the whole country. not just japan but so many diff cool countries.
 
 finna put my bitch in my srt, do dougnuts and make her scream xD
+
+I ain't gon run behind any bitch until i get rich. if any bitch really wants me then she'll get me anyhow.
