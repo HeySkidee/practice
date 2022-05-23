@@ -73,4 +73,4 @@ I wanna be rich so that i can take my girl to japan and travel the whole country
 
 finna put my bitch in my srt, do dougnuts and make her scream xD
 
-I ain't gon run behind any bitch until i get rich. if any bitch really wants me then she'll get me anyhow.
+I ain't gon run behind no bitch until i get rich. if any bitch really wants me then she'll get me anyhow.
