@@ -1,4 +1,4 @@
-### I work hard af 
+### I work hard af. practice ur focus whenever possible.
 idc i want it asap. speed run this bitch then think about whatever wanna live or die.
 ### I don't stop. work and sleep.
 
