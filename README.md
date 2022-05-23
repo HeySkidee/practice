@@ -1,6 +1,6 @@
 ### I work hard af 
-idc i want it asap. speed run this bitch then think about something else wanna live or die.
-### I don't stop
+idc i want it asap. speed run this bitch then think about whatever wanna live or die.
+### I don't stop. work and sleep.
 
 get a job, go to bangalore, start making music and be the first Indian programmer , english rapper with global level shit.
 
