@@ -3,6 +3,8 @@
 idc i want it asap. speed run it then think about wanna live or die.
 ### I don't stop. work and sleep.
 
+itna hardwork karo ki sabki phat jaye bas by knowing the hardwork you do.
+
 get a job, go to bangalore, start making music and be the first Indian programmer , english rapper with global level shit.
 
 I wanna be the best indian english rapper. touching electronic, pluggnb, mumble, supertrap.
