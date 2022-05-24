@@ -69,7 +69,7 @@ dusro se jitna kam expect kar sakte ho karo and zyada se zyada accept karo.
 
 find reasons to live. not excuses to die.
 
-I wanna be rich so that i can take my girl to japan and travel the whole country. not just japan but so many diff cool countries.
+I wanna be rich so that i can take my girl to [japan and travel the whole country](https://youtu.be/IuTDuvYr7f0). not just japan but so many diff cool countries.
 
 finna put my bitch in my srt, do dougnuts and make her scream xD
 
