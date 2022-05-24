@@ -1,3 +1,4 @@
+### Proper amount of work and proper amount of sleep. Lil Baby Hustle
 ### You gonna see better days bro don't giveup. 
 ### work hard af. practice ur focus whenever possible.
 idc i want it asap. speed run it then think about wanna live or die.
