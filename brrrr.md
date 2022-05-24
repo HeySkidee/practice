@@ -76,7 +76,7 @@ idc I wanna be a millionaire
 
 ---
 
-I want to do a lot of stuff. having dreadlocks, driving in a lamb truck, buying some good stuff for my friends, family and relatives.
+I want to do a lot of stuff. having [dreadlocks](https://www.youtube.com/watch?v=_JZqoGz0b6o), driving in a lamb truck, buying some good stuff for my friends, family and relatives.
 
 I'm not gonna change myself, my behaviour just to attract people. I wanna do stuff coz I like to do it or have it.
 
@@ -241,3 +241,7 @@ make your website more like your own social media platform. only you will be abl
 ---
 
 My mother and brother already been through a lot. I don't wanna make them feel bad anymore in any possible way.
+
+---
+
+Love your work. everything will come behind it fr.
