@@ -245,3 +245,7 @@ My mother and brother already been through a lot. I don't wanna make them feel b
 ---
 
 Love your work. everything will come behind it fr.
+
+---
+
+working for a state. wanna be so up where no bs can't even touch me and my loved ones till rest of my life.
