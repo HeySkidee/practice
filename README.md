@@ -1,4 +1,6 @@
 ## Just study wtf
+you are the one who gon learn programming and get a job. alone. no one gon do that for you. stop pleasing people.
+
 suffering in a job and getting money is better than suffering for college studies and getting nothing 
 ### Proper amount of work and proper amount of sleep. Lil Baby Hustle
 ### You gonna see better days bro don't giveup. 
