@@ -1,12 +1,22 @@
-## Just study wtf
-you are the one who gon learn programming and get a job. alone. no one gon do that for you. stop pleasing people.
+## Just study 
+you are the one who gon learn programming and get a job. alone. no one gon do that for you. stop pleasing people. don't waste energy on em
+
+idc i want it asap. speed run it then think about life.
 
 suffering in a job and getting money is better than suffering for college studies and getting nothing 
+<details>
+<summary>rich</summary>
+  
 ### Proper amount of work and proper amount of sleep. Lil Baby Hustle
+  
 ### You gonna see better days bro don't giveup. 
+  
 ### work hard af. practice ur focus whenever possible.
+  
 idc i want it asap. speed run it then think about wanna live or die.
+  
 ### I don't stop. work and sleep.
+  
 Time is important fr man. use this 19th year with high intensity and efficiency. every hour counts. extract this year. don't worry about future.
 
 itna hardwork karo ki sabki phat jaye bas by knowing the hardwork you do.
@@ -79,3 +89,5 @@ I wanna be rich so that i can take my girl to [japan and travel the whole countr
 finna put my bitch in my srt, do dougnuts and make her scream xD
 
 I ain't gon run behind no bitch until I get rich. That's it. That's my rule. if any bitch really wants me then she'll get me anyhow.
+
+</details>
