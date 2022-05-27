@@ -93,3 +93,7 @@ I ain't gon run behind no bitch until I get rich. That's it. That's my rule. if 
 </details>
 
 Building a lifestyle is hard. getting a girl is easy. weak lazy people go for a girl
+
+Everything we do is real, we makin' some money, bitch, we don't got time to play
+
+I don't know what the fuck you thought this was, ho, you don't got no money
