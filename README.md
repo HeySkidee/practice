@@ -91,3 +91,5 @@ finna put my bitch in my srt, do dougnuts and make her scream xD
 I ain't gon run behind no bitch until I get rich. That's it. That's my rule. if any bitch really wants me then she'll get me anyhow.
 
 </details>
+
+Building a lifestyle is hard. getting a girl is easy. weak lazy people go for a girl
