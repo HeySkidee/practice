@@ -103,3 +103,13 @@ Everything we do is real, we makin' some money, bitch, we don't got time to play
 Your next love will come naturally. let god plan the best for you. It will be permanent and so good that you won't even believe like everything between you will be just perfect.
 
 just keep doing the right things and don't judge people. be happy for them and yourself as well.
+
+5 things to quit right now:
+
+1. Overthinking
+2. Trying to make everyone happy
+3. Living in the past
+4. Worrying
+5. Doubting yourself
+
+## Act
