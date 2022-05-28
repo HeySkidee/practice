@@ -94,7 +94,12 @@ Building a lifestyle is hard. getting a girl is easy. weak lazy people go for a 
 
 
 I don't know what the fuck you thought this was, ho, you don't got no money
-</details>
-
+  
 Everything we do is real, we makin' some money, bitch, we don't got time to play ☔️
 
+</details>
+
+
+Your next love will come naturally. let god plan the best for you. It will be permanent and so good that you won't even believe like everything between you will be just perfect.
+
+just keep doing the right things and don't judge people. be happy for them and yourself as well.
