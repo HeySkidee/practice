@@ -112,4 +112,4 @@ just keep doing the right things and don't judge people. be happy for them and y
 4. Worrying
 5. Doubting yourself
 
-## Act
+## Action
