@@ -1,4 +1,4 @@
-## Just do what you do, don't need to complicate it  
+## [Just do what you do, don't need to complicate it](https://www.youtube.com/watch?v=oQhehGki5-Q)
 you are the one who gon learn programming and get a job. alone. no one gon do that for you. stop pleasing people. don't waste energy on em
 
 idc i want it asap. speed run it then think about life.
