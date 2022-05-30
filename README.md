@@ -31,6 +31,7 @@ give urself a chance till 24 and do whatever the fuck it takes to become success
 this time won't come back. use it wisely. thinking and doing right things. average person keep swiping their phone.
 
 take care of your brain.
+  
 
 staying calm, humble, smiling more, talking less, doing more, staying calm, focused and quick is my speciality.
 
