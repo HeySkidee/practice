@@ -3,7 +3,7 @@ you are the one who gon learn programming and get a job. alone. no one gon do th
 
 idc i want it asap. speed run it then think about life.
 
-suffering in a job and getting money is better than suffering for college studies and getting nothing 
+suffering in a job and getting money is better than suffering for college studies or other bullshit and getting nothing 
 <details>
 <summary>rich</summary>
   
@@ -114,3 +114,6 @@ just keep doing the right things and don't judge people. be happy for them and y
 5. Doubting yourself
 
 ## Action
+
+- I've taste of every internet fun related thing. so I can invest all of my time on myself instead of giving my time to other's content
+- I code, journal, use twitter and discord.
