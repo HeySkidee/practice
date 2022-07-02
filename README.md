@@ -117,3 +117,5 @@ just keep doing the right things and don't judge people. be happy for them and y
 
 - I've taste of every internet fun related thing. so I can invest all of my time on myself instead of giving my time to other's content
 - I code, journal, use twitter and discord.
+
+# die creating
