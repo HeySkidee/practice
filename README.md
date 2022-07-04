@@ -119,3 +119,4 @@ just keep doing the right things and don't judge people. be happy for them and y
 - I code, journal, use twitter and discord.
 
 # die creating
+First Indian mf to make software, music like this. Fuck bs. The One Thing. Real shit. real software, real music, real money, real lambos.
