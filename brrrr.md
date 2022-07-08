@@ -1,4 +1,4 @@
-I waste my time on thinking about future.
+I can save my time if i stop worrying about things, and start taking action.
 
 ## idc
 
