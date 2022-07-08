@@ -1,3 +1,5 @@
+I waste my time on thinking about future.
+
 ## idc
 
 ### 2022: Get a job and shift to bangalore
