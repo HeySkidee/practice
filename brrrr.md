@@ -253,3 +253,11 @@ Love your work. everything will come behind it fr.
 working for a state. wanna be so up where no bs can't even touch me and my loved ones till rest of my life.
 
 Play the long term game.
+
+---
+
+lookin ugly but work ethic crazy. making money tall as shit
+
+this shit got billion dollar potential. now code, english. thats it
+
+bhagavad gita
