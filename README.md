@@ -3,6 +3,8 @@ you are the one who gon learn programming and get a job. alone. no one gon do th
 
 idc i want it asap. speed run it then think about life.
 
+u already wasted so much time on bs. now uk on what spending time will worth it. do this experiment of grind till 22
+
 suffering in a job and getting money is better than suffering for college studies or other bullshit and getting nothing 
 <details>
 <summary>rich</summary>
