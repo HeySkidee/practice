@@ -3,6 +3,9 @@ I can save my time if i stop worrying about things, and start taking action.
 ## idc
 
 ### 2022: Get a job and shift to bangalore
+bangalore sheher me mera naam hoga. poora desh, duniya jaanegi mujhe
+
+but uske liye pehle ye lame mindset, ig and teen shit chodhke real work karna padega.
 
 ---
 
