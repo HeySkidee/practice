@@ -264,3 +264,11 @@ lookin ugly but work ethic crazy. making money tall as shit
 this shit got billion dollar potential. now code, english. thats it
 
 bhagavad gita
+
+---
+
+do whatever you want, just don't hurt people.
+
+---
+
+dusro ko dikhake, flex krke kya milega. ghar walo ko khush rakhoge to khush rhoge. 
