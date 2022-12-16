@@ -3,6 +3,8 @@
 
 Do the real boss shit. no lame ass teenage shit
 
+I got no time for partying and shit. i can do it all at a bigger scale later
+
 you are the one who gon learn programming and get a job. alone. no one gon do that for you. stop pleasing people. don't waste energy on em
 
 idc i want it asap. speed run it then think about life.
