@@ -3,7 +3,7 @@
 
 Do the real boss shit. no lame ass teenage shit 
 
-no need to impress anyone
+no need to impress anyone 
 
 I'm a king. I'm born to rule. I got management skills. I'll make a name for myself. i'll create the second blackrock, lvmh, tencent, amazon empire
 
