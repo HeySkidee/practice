@@ -136,3 +136,6 @@ just keep doing the right things and don't judge people. be happy for them and y
 First Indian mf to make software, music like this. Fuck bs. The One Thing. Real shit. real software, real music, real money, real lambos.
 
 Real Boss Shit. no lame ass teenage shit
+
+negative emotions ka kuch fayeda ni
+gusse, dukh, jealousy, hatered, flexing, status game, mocking, regretting, crying, overthinking, blaming and baaki negative character traits ka 1% fayeda ni h.
