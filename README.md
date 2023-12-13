@@ -1,4 +1,4 @@
-## Bas kar bhai, padhle. Job lele uske baad dekhna passion, desires.
+## Bas kar bhai, padhle. Job lele uske baad dekhna sochna passion, desires.
 [Just do what you do, don't need to complicate it](https://www.youtube.com/watch?v=oQhehGki5-Q)
  
 Do the real boss shit. no lame ass teenage shit 
