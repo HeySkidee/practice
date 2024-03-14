@@ -253,7 +253,7 @@ Love your work. everything will come behind it fr.
 
 ---
 
-working for a state. wanna be so up where no bs can't even touch me and my loved ones till rest of my life.
+working for that state. wanna be so up where no bs can't even touch me and my loved ones till rest of my life.
 
 Play the long term game.
 
@@ -263,12 +263,8 @@ lookin ugly but work ethic crazy. making money tall as shit
 
 this shit got billion dollar potential. now code, english. thats it
 
-bhagavad gita
-
 ---
 
-do whatever you want, just don't hurt people.
+kar liya 4 saal masti. wo 4 saal kaam karna tha and college life jeena tha but ni kiya. 
 
----
-
-dusro ko dikhake, flex krke kya milega. ghar walo ko khush rakhoge to khush rhoge. 
+ab next 4 years total sacrifice karduga total. its the tradeoff no music. no videos. no sugar. i did that a lot already
