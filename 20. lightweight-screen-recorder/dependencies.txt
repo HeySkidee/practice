@@ -1,0 +1,12 @@
+pip install python-screen-capture
+
+pip uninstall opencv-python
+pip install opencv-contrib-python -I
+
+sudo apt-get install python3-dev libasound2-dev
+
+pip install pyaudio
+
+pip install pyscreenshot
+
+pip install scipy

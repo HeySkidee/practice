@@ -1,0 +1,20 @@
+body {
+    font-family: Arial, sans-serif;
+    margin: 0;
+    padding: 0;
+    background-color: black;
+    align-items: center;
+    text-align: center;
+    color: aliceblue;
+}
+
+.container {
+    padding: 20px;
+    align-items: center;
+}
+.container img {
+    display: block;
+    width: 40%;
+    margin: 0px 30% 40px 30%;
+
+}
